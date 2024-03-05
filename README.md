@@ -1,2 +1,2 @@
 CS Student
-Reach me at menta8seca@gmail.com
+Reach me at majed.alghoul3@gmail.com
